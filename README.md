@@ -1,0 +1,2 @@
+# premium-encaustic-monotype-001-encaustic-monotype-hot-plate
+Tired of scattered notes, blurry reference photos, and losing track of your encaustic monotype experiments? Your hot plate print studio deserves a centralized system that captures every layer, temperature detail, and creative breakthrough.  The Encaustic Monotype &amp; Hot Plate Print Studio is a Notion template designed specifically for artists workin
